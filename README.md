@@ -1,0 +1,2 @@
+# frekuensi-solfeggio
+Suara kekayaan
